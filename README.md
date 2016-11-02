@@ -1,1 +1,2 @@
-# hello-world
+#I HATE COMP3111
+#FUCK MY LIFE
